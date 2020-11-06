@@ -1,0 +1,2 @@
+# FatihDiscorddeneme
+artık ol
